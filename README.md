@@ -1,1 +1,1 @@
-# 1C-GitHub
+# Vinicius Santana Pimentel
